@@ -5,6 +5,7 @@
 <p align="center"><img src="https://files.catbox.moe/031qfb.jpg" alt="Alt text" style="width:30%; height:auto;"/>
 
 <sub>$\color{#a22767}{\textsf{im fixing this later (again)}}$
+<sub>$\color{#a22767}{\textsf{im trying to figure ts out, mb. jst go check out strawpage idk}}$
 
 <sub>$\color{#a22767}{\textsf{pls ignore tht i cosplay as jimmy pissman in pt}}$
 <sub>$\color{#a22767}{\textsf{im planning to make othr membs but im lazy af}}$
