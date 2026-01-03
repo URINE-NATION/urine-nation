@@ -7,4 +7,6 @@
 <p align="center"><img src="https://files.catbox.moe/031qfb.jpg" alt="Alt text" style="width:30%; height:auto;"/>
 
 <sub>$\color{#a22767}{\textsf{im fixing this later (again)}}$
-<sub>$\color{#a22767}{\textsf{im trying to figure ts out, mb. jst go check out strawpage idk}}$
+<sub>$\color{#a22767}{\textsf{im trying to figure ts out, mb. jst go check out strawpage instead}}$
+
+<sub>[straw](https://urine-nation.straw.page)
