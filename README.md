@@ -2,12 +2,9 @@
 
 <sub>$\color{#a22767}{\textsf{i srsly forgot what to write, now u knw i forget often}}$
 
+<sub>i use this account when im having mood swings (or not in the mood, idfk) iwec(uf/spouse). whisp to int if I dont respond in general chat and u may c/h with me if I state it in my name, otherwise you have to ask for permission or sit in front of me.
+
 <p align="center"><img src="https://files.catbox.moe/031qfb.jpg" alt="Alt text" style="width:30%; height:auto;"/>
 
 <sub>$\color{#a22767}{\textsf{im fixing this later (again)}}$
 <sub>$\color{#a22767}{\textsf{im trying to figure ts out, mb. jst go check out strawpage idk}}$
-
-<sub>$\color{#a22767}{\textsf{pls ignore tht i cosplay as jimmy pissman in pt}}$
-<sub>$\color{#a22767}{\textsf{im planning to make othr membs but im lazy af}}$
-<sub>$\color{#a22767}{\textsf{i dont support the band, im fully aware of the controversy.}}$
-<sub>$\color{#a22767}{\textsf{ice cream will never fix this}}$
