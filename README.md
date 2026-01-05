@@ -8,5 +8,7 @@
 
 <sub>$\color{#a22767}{\textsf{im fixing this later (again)}}$
 <sub>$\color{#a22767}{\textsf{im trying to figure ts out, mb. jst go check out strawpage instead}}$
+<sub>$\color{#a22767}{\textsf{and also sign ata if u want...}}$
 
-<sub>[straw](https://urine-nation.straw.page)
+
+<sub>[straw](https://urine-nation.straw.page) // [ata](https://urine.atabook.org/?page=1)
