@@ -11,4 +11,4 @@
 <sub>$\color{#a22767}{\textsf{and also sign ata if u want...}}$
 
 
-<sub>[straw](https://urine-nation.straw.page) // [ata](https://urine.atabook.org/?page=1)
+<sub>[straw](https://pisskinkman69.straw.page) // [ata](https://urine.atabook.org/?page=1)
