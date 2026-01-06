@@ -1,8 +1,8 @@
 ![alt text](https://files.catbox.moe/gmhyzw.png)
 
-<sub>$\color{#a22767}{\textsf{i srsly forgot what to write, now u knw i forget often}}$
+<sub>$\color{#a22767}{\textsf{i srsly forgot what to write}}$
 
-<sub>i use this account when im having mood swings (or not in the mood, idfk) iwec(uf/spouse). whisp to int if I dont respond in general chat
+<sub>i use this account when im having mood swings (or not in the mood, idfk) iwec(uf/spouse). whisp to int if I dont respond in general chat. if u see me cosplaying as jimmy, js ignore and go on ur day or whtvr tf u word it, im fully aware of the controversy and I dont support any of it (even if alleged)
 
 <p align="center"><img src="https://files.catbox.moe/031qfb.jpg" alt="Alt text" style="width:30%; height:auto;"/>
 
