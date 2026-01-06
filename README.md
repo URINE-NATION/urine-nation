@@ -2,7 +2,7 @@
 
 <sub>$\color{#a22767}{\textsf{i srsly forgot what to write, now u knw i forget often}}$
 
-<sub>i use this account when im having mood swings (or not in the mood, idfk) iwec(uf/spouse). whisp to int if I dont respond in general chat and u may c/h with me if I state it in my name, otherwise you have to ask for permission or sit in front of me.
+<sub>i use this account when im having mood swings (or not in the mood, idfk) iwec(uf/spouse). whisp to int if I dont respond in general chat
 
 <p align="center"><img src="https://files.catbox.moe/031qfb.jpg" alt="Alt text" style="width:30%; height:auto;"/>
 
