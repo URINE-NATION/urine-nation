@@ -4,7 +4,7 @@
 
 <sub>i use this account when im having mood swings (or not in the mood, idfk) iwec(uf/spouse). whisp to int if I dont respond in general chat. if u see me using a skin that looks like jimmy, ure hallucinating, it's my oc, it's not jimyy fucing urine,, but if u still think it is, then ignore me and go on abt ur day or whtvr tf u word ts
 
-<sub>$\color{#a22767}{\textsf{i lov n hate msi, im fully aware of the controversy and i dont support it.}}$
+<sub>$\color{#a22767}{\textsf{i lov n hate msi, fully aware of the controversyand i dont support it.}}$
 
 <p align="center"><img src="https://files.catbox.moe/031qfb.jpg" alt="Alt text" style="width:30%; height:auto;"/>
 
