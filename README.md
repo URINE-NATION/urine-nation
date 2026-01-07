@@ -2,7 +2,7 @@
 
 <sub>$\color{#a22767}{\textsf{i srsly forgot what to write}}$
 
-<sub>i use this account when im having mood swings (or not in the mood, idfk) iwec(uf/spouse). whisp to int if I dont respond in general chat. if u see me using a skin that looks like jimmy, ure hallucinating, it's my oc, it's not jimyy fucing urine,, but if u still think it is, then ignore me and go on abt ur day or whtvr tf u word ts
+<sub>i rly dont knw what to do with this git acc, this is my main now ig. whisp to int cus im usually afk. if u see me using a skin that looks like jimmy, ure hallcinating, it's my oc, it's not jimyy fucing urine,, but if u still think it is, then ignore me and go on abt ur day or whtvr tf u word ts. im a bkt of a messy typer, depends onbmood or jst tired. there's more info in my straw I think, u should check tht out if u want
 
 <sub>$\color{#a22767}{\textsf{i lov n hate msi, fully aware of the controversyand i dont support it.}}$
 
